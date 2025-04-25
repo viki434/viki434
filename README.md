@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @viki434
-- 👀 I’m interested in goli kaki
-- 🌱 I’m currently learning nishto
-- 💞️ I’m looking to collaborate on discord
-- 📫 How to reach me vikifn_
-- 😄 Pronouns: nigga/nigga
-- ⚡ Fun fact: ti si gei
+# BECOMING SKID FROM DAY 1 ALSO CREATING JAVA PLUGINS
